@@ -4,6 +4,8 @@
 
 Canvas Entertainment came into existence to provide focused approach towards event planning segment. Canvas Entertainment caters to venue finding, accommodation, design, décor, catering, entertainment, scheduling and much more. Canvas is also training new comers in this field by the means of its events, which brings knowledge and fresh perspective while providing the full range of services. We are rapidly gaining a reputation for our meticulously planned events and then team’s passion to provide the best services each time.
 
+![](<./img/1%20(2).jpg>)
+
 ## Company Strategy
 
 ### Purpose:
@@ -53,6 +55,8 @@ To build long term relationships with our customers and clients and provide exce
 - Hospitality & Travel: Our team is expert in handling many guests at a time with variable services. We get involved in all rituals of the function as family members and help the guests to enoiy the same by looking after each and every need of them.
 - Destination wedding: If you're looking for a unique way to say "I do" while surrounded by your closest friends and family members, a destination wedding in a romantic location is ideal. Having a destination wedding allows you to exchange vows in a stunning paradise. Whether you envision your ceremony on a white-sand beach, atop a cliff overlooking the ocean, within a blooming garden, or surrounded by mountains, the options for destination wedding locations are as limitless as your imagination.
 
+![](<./img/1%20(5).jpg>)
+
 ### Corporate Events
 
 - Meetings and Conventions: Each client of CANVAS is unique, and our solutions for you will be unique as well. No meeting is too big or too small for our professional meeting planner; from roundtables, seminars, or luncheon speaker programs to major conventions, product launches or national sales meetings: we can take care of all the details so that you can participate in your own meeting, side by side with your managers and attendees, without the worries the logistical responsibilities can entail.
@@ -63,6 +67,8 @@ To build long term relationships with our customers and clients and provide exce
 
 - Concerts: Canvas’ team works extensively on live outdoor events and so understand the organization of the numerous elements involved in producing a seamless public event. Be it a concert of a famed personality or a DJ set of an International deck artist, our team handles it all. Canvas Entertainment holds the pride to bring in the city, the Asia’s largest music festival SUNBURN. We organized Sunburn Reload; official event of Percept Live (ipr holder for sunburn) in Indore for the first time, the gig was amazingly wonderful.
 - Stage/Fashion Shows: Artists with their art and youngsters with their fashion. Something like this always looks good on stage. Our team members are capable enough to manage the production of the complete event and create an ample coordination with the artist team.
+
+![](<./img/1%20(7).jpg>)
 
 ## Contact us
 
